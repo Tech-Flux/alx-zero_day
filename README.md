@@ -1,1 +1,1 @@
-**This is my repository please give star** *Thanks*
+**This is my repository please give star** *Thanks you*
